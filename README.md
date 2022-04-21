@@ -2,7 +2,7 @@
 - 👀 I’m interested in hacking poeple but not in a bad way i wont to learn 
 - 🌱 I’m currently learning coding and wont to learn more please help me 
 - 💞️ I’m looking to collaborate on hacking with poeple and i wont somone with good thinking but i wont to learn the good hacking and bad
-- 📫 How to reach me im on discord at mr.end.keeper#7662 or my email which is nku669@gmail.com
+- 📫 How to reach me im on discord at mr.end.keeper#7662 or my email which is unku669@gmail.com
 -
 
 <!---
